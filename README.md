@@ -3,4 +3,4 @@
 # Me toco hacerlo solo ya que no tuve compañero 
 
 
-!https://cdn-0.emojis.wiki/emoji-pics/facebook/pensive-face-facebook.png
+!https://img.freepik.com/vector-premium/cara-emoji-triste-pensativa-o-emoticon-decepcionado-3d_248162-149.jpg
